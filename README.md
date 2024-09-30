@@ -1,0 +1,1 @@
+We are not responsible for breakdowns of your device, bootloops, or anything else, these roms is tested by me and zxcwsurx, if you have any problems with the UX, please contact me at the link: https://t.me/fol4ikgmd
